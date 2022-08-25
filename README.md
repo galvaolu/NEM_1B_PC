@@ -3,5 +3,5 @@
 ### SOU ESTUDANTES DO COLEGIO HUMBERTO DE CAMPOS
 #### MINHA TURMA É 1B 
 ##### DISCIPLINA PENSAMENTO COMPUTACIONAL!
-[CLIQUE AQUI](https://encrypted-tbn0.gstatic.com/images?q=tbn:ANd9GcQy5q5R-Ktii4oSlAoaBMiNme4foeU6um9kpg&usqp=CAU)
-
+[clique aqui](https://www.youtube.com/watch?v=zgdQsLH7sDw)
+![](https://www.terra.com.br/esportes/gremio/diego-souza-brilha-com-hat-trick-e-gremio-vence-a-1-na-serie-b,8ab4ed189c961fb49926015d5ee9001ftfm5jvz2.html)
