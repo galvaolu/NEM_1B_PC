@@ -4,4 +4,5 @@
 #### MINHA TURMA É 1B 
 ##### DISCIPLINA PENSAMENTO COMPUTACIONAL!
 [clique aqui](https://www.youtube.com/watch?v=zgdQsLH7sDw)
-![](https://www.terra.com.br/esportes/gremio/diego-souza-brilha-com-hat-trick-e-gremio-vence-a-1-na-serie-b,8ab4ed189c961fb49926015d5ee9001ftfm5jvz2.html)
+![image](https://user-images.githubusercontent.com/106616438/186660624-55462f7b-4051-45ce-b8d9-4bea8c4b4557.png)
+
